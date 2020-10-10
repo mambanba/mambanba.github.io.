@@ -1,1 +1,1 @@
-# mambanba.github.io.
+# mambanba.github.io
